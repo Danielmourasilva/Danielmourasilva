@@ -4,7 +4,7 @@
 
 ##  💡 l34rn.ing
 
-Gosto muito de Angular, CSS, Js. Na verdadde estou passando por um transição de carreira e estou amando tudo isto. Para mim é tudo novo haha
+Gosto muito de Angular, CSS, Js. Na verdade estou passando por um transição de carreira e estou amando tudo isto. Para mim é tudo novo haha
 
 ##  🖥️ sk1.lls[]
 
