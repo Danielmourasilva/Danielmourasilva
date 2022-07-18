@@ -27,6 +27,7 @@ Eu costumo trabalhar com esses tópicos abaixo. Mas, como disse acima, pra mim t
 - 💃🎵 Mova meu corpo. andar pelo bairro fazer uma corrida e ouvir musica
 - ✍🏼📝 Escrever e ler. gosto de estudar
 - 🧙🏽‍♀️🔮 Gosto de uma baladinha, mas sou bem caseiro
+- ❤️❤️ Voluntario Podemos mudar o mundo de alguém, doando o que temos dentro de nós, amo crianças e gatinhos.
 
 ##  📨 c0nt4ct.me
 
